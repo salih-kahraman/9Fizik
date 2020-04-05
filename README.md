@@ -3,6 +3,12 @@
   ### EGGPLANT KEBAB
 First peel 6 eggplant and slice them . After that soak them in salt water. Slice 4 pepper and 3 tomatoes too. Put 1kg mince in a large bowl. Add 1 onions juice and a pinch of salt, pepper and red pepper. Knead the mince until everything mixes. Drain eggplants. Take a slice of eggplant,pepper and tomato, make a small meatball and put them side by side in a oven tray. Bake it for 1 hour. Enjoy your meal.
 
+Önce 6 patlıcanı soyun ve dilimleyin.Sonra onları tuzlu suya batırın. 4 biber ve 3 domates dilimleyin. 1kg kıymayı büyük bir kaseye koyun. 1 soğanın suyunu ve bir tutam tuzu, karabiberi ve kırmızı biberi ekleyin. Kıymayı her şey karışana kadar yoğurun. Patlıcanları süzün. Bir dilim patlıcan, biber ve domates alın, küçük bir köfte yapın ve yan yana bir fırın tepsisine koyun. 1 saat pişirin. Afiyet olsun
+
+
+
+
+
 
 
 
